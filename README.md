@@ -1,0 +1,1 @@
+# sony-vegas-pro-license-bridge-2026
